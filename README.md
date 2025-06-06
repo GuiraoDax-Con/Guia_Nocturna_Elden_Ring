@@ -1,2 +1,2 @@
-# Gu-a-Nocturna-Elden-Ring
+# Guia Nocturna Elden Ring
 APP guia para Elden Ring Nightreign
